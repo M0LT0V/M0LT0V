@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @M0LT0V
+- 👀 I’m interested in: Wordle Speaks
+- 🌱 I’m currently learning: java
+- 💞️ I’m looking to collaborate on: Nothing please. All projects are solo.
+- 📫 How to reach me: Möłtöv#7860
